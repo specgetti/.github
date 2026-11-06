@@ -1,1 +1,1 @@
-## All the good names were taken.
+All the good names were taken.
